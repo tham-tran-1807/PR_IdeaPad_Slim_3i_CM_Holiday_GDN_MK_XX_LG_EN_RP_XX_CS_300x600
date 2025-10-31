@@ -1,0 +1,2 @@
+# PR_IdeaPad_Slim_3i_CM_Holiday_GDN_MK_XX_LG_EN_RP_XX_CS_300x600
+PR_IdeaPad_Slim_3i_CM_Holiday_GDN_MK_XX_LG_EN_RP_XX_CS_300x600
